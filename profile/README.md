@@ -12,7 +12,7 @@ Find your way to help ukrainians defend the world of freedom and democracy:
 
 **Why is this so important?**
 
-My home country has been ruined by terrible war started by Russian Federation.
+Ukraine has been ruined by terrible war started by Russian Federation.
 Thousands of people lost their lives and homes. Millions are affected by acts of terrorism,
 which occur on daily basis. They say they came to protect someone, but instead cruelly kill
 children and elderly people, erase whole cities from the face of the earth, because they simply don't
